@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Ananda Faiz Argananta
 
-NIM : 
+NIM : 607062400033
 
 ## Instruksi
 
